@@ -6,7 +6,7 @@
 
 ## The role
 
-Every is the only subscription you need to stay at the edge of AI. We publish daily for 150K+ readers, build five AI products (Spiral, Cora, Sparkle, Monologue, Plus One), and run AI transformation consulting for Fortune 500 companies.
+Every is the only subscription you need to stay at the edge of AI. We publish daily for 130K+ readers, build five AI products (Spiral, Cora, Sparkle, Monologue, Plus One), and run AI transformation consulting for Fortune 500 companies.
 
 We need a Head of Social to shape how AI-powered and agent-native workflows drive social media growth. You'll lead the strategy at Every across social platforms, while owning how business initiatives like editorial content, product launches, and marketing campaigns integrate with social channels.
 
